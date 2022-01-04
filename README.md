@@ -6,4 +6,4 @@ Modified Version of a speed typing checker.
 😎
 Sub My YT Channel :- alwaysbees 
 Btw See Ya :D
-Hpoe You Bought Pizza 🍕
+Hope You Bought Pizza 🍕
